@@ -1,6 +1,6 @@
 ## Kayla Reap
 
-#### INFOTC 2600
+#### INFOTC 2040
 
 [Google](https://www.google.com)
 
